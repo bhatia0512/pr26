@@ -16,4 +16,4 @@
 
 9) 1 toothpick (for checking whether the cake is baked properly or not ) .
 
-10) A serving bowl .
+ 10) A serving bowl .
